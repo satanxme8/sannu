@@ -19,11 +19,11 @@ Happy Birthday Love ❤️🎂
 You are the most beautiful part of my life, the reason behind my smiles and the calm in my chaos 🌸💫
 Every moment with you feels special, every memory feels warmer and every dream feels closer because you’re in it 💞
 
-I wish you endless happiness 😊, success that follows you everywhere 🌟 and love that surrounds you just like you’ve surrounded my heart 🫶
-Thank you for being you so caring, so real, and so perfectly imperfect 🥹❤️
+I wish you endless happiness✨ success that follows you everywhere and love that surrounds you just like you’ve surrounded my heart 🫶
+Thank you for being you so caring, so real and so perfectly imperfect 🥹❤️ 
 
 Today is all about celebrating you, but just know… I celebrate you every single day 💕
-Stay smiling, stay shining and never forget how deeply loved you are 💖🌹
+May you never lose that beautiful smile of yours. I love you more than words can explain and more than infinity could ever hold ❤️♾️🧿
 
 Happiest Birthday my pretty lil babyy 🫂❤️🎉
 
